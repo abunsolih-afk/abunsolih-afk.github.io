@@ -2,7 +2,7 @@
 
 ![WTTOTO Banner](https://img.icons8.com/fluent/96/000000/shield.png)
 
-Selamat datang di panduan komprehensif **WTTOTO**. Sebagai salah satu **Platform Resmi** terkemuka, WTTOTO menawarkan pengalaman bermain yang aman, stabil, dan transparan. Dokumentasi ini dirancang untuk membantu Anda memahami cara akses, fitur unggulan, dan solusi teknis untuk pengalaman bermain yang maksimal.
+Selamat datang di panduan komprehensif **[WTTOTO](https://wttoto.org/)**. Sebagai salah satu **Platform Resmi** terkemuka, WTTOTO menawarkan pengalaman bermain yang aman, stabil, dan transparan. Dokumentasi ini dirancang untuk membantu Anda memahami cara akses, fitur unggulan, dan solusi teknis untuk pengalaman bermain yang maksimal.
 
 ---
 
